@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-[![KnlnKS's LeetCode stats](https://leetcode-stats-six.vercel.app/?username=ermachenkoboris)](https://github.com/ermachenkoboris/leetcode-stats)
+<!-- [![KnlnKS's LeetCode stats](https://leetcode-stats-six.vercel.app/?username=ermachenkoboris)](https://github.com/ermachenkoboris/leetcode-stats) -->
 
 <!--
 **ErmachenkoBoris/ErmachenkoBoris** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

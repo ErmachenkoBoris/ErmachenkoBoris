@@ -38,7 +38,7 @@ Here are some ideas to get you started:
 
 ## 𝕄𝕪 𝕨𝕖𝕓𝕤𝕚𝕥𝕖
 [𝕖𝕣𝕞𝕒𝕔𝕙𝕖𝕟𝕜𝕠.𝕔𝕠𝕞](𝕖𝕣𝕞𝕒𝕔𝕙𝕖𝕟𝕜𝕠.𝕔𝕠𝕞)
-![](https://s153vlx.storage.yandex.net/rdisk/35d602ab1db875f9f7b69559cdd5e527e206cbbca70d82cd12e4807106dcf1f2/654afba6/XIhETXcDUrlxrQFIPXMVp3cC5aeB3NTaYLJAhRslCYGqYVnt7-0xmvrOql7enJNFdbK2f78OVhu69PLS1IUuNw==?uid=0&filename=%D0%A1%D0%BD%D0%B8%D0%BC%D0%BE%D0%BA%20%D1%8D%D0%BA%D1%80%D0%B0%D0%BD%D0%B0%202023-11-08%20%D0%B2%2002.07.55.png&disposition=inline&hash=&limit=0&content_type=image%2Fpng&owner_uid=0&fsize=2390538&hid=b5efff705acac489f009fd84d3e74fd2&media_type=image&tknv=v2&etag=e4738fe87082980f66944ae7c0099dbd&rtoken=E5mZ92A60axV&force_default=no&ycrid=na-717baff1c75c3400e4974fc337ed8c14-downloader21f&ts=6099b6659b580&s=e0c84c670f14b89401093963559120d354b1ee77e0aa7ea3824250e6118fa082&pb=U2FsdGVkX1--12Yz-VzX3I-enBEooKyds3Yzn01S172o1QpDl5hbQbTxPmE_Z5A8d2_jDmF8_drcaAcjN8fB32h9HY4U7457QI88U2ZFFck)
+
 ## 𝕄𝕪 𝕡𝕣𝕖𝕧𝕚𝕠𝕦𝕤 𝕛𝕠𝕓𝕤
 - ### ℕ𝕖𝕥𝕔𝕣𝕒𝕔𝕜𝕖𝕣 𝕋𝕖𝕔𝕙𝕟𝕠𝕝𝕠𝕘𝕪
 - ### 𝕐𝕒𝕟𝕕𝕖𝕩
